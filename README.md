@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Akrm-Alshathly
+- 👀 I’m interested in AI,programming,nanotecnology and app developement👩‍💻
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on learning python
+- 📫 How to reach me Telegram: @AkrTMG👀
+- 😄 Pronouns: TMG
+- ⚡ Fun fact: I’m an eating lover😂
